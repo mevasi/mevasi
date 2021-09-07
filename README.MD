@@ -1,0 +1,1 @@
+My code would be better if I made it in Scratch
